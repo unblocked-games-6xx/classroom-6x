@@ -3,105 +3,105 @@
 Classroom 6x is a unique online platform tailored for students who want to enjoy unblocked games in a safe, ad-free environment. Whether you’re looking for a quick mental break during school hours or a fun way to unwind at home, Classroom 6x has got you covered.
 
 # UNBLOCKED GAMES LIST
-[Unblocked Games](https://www.abn.org.au/game/snow-rider-3d)
+[Unblocked Games](https://www.ictnet.es/game/snow-rider-3d)
 
-[fireboy and watergirl unblocked](https://www.abn.org.au/game/fireboy-and-watergirl)
+[fireboy and watergirl unblocked](https://www.ictnet.es/game/fireboy-and-watergirl)
 
-[snow rider 3d unblocked](https://www.abn.org.au/game/snow-rider-3d)
+[snow rider 3d unblocked](https://www.ictnet.es/game/snow-rider-3d)
 
-[snow rider 3d](https://www.abn.org.au/game/snow-rider-3d)
+[snow rider 3d](https://www.ictnet.es/game/snow-rider-3d)
 
-[snow rider unblocked](https://www.abn.org.au/game/snow-rider-3d)
+[snow rider unblocked](https://www.ictnet.es/game/snow-rider-3d)
 
-[snow rider](https://www.abn.org.au/game/snow-rider-3d)
+[snow rider](https://www.ictnet.es/game/snow-rider-3d)
 
-[roblox unblocked](https://www.abn.org.au/game/roblox)
+[roblox unblocked](https://www.ictnet.es/game/roblox)
 
-[roblox](https://www.abn.org.au/game/roblox)
+[roblox](https://www.ictnet.es/game/roblox)
 
-[retro bowl unblocked](https://www.abn.org.au/game/retro-bowl)
+[retro bowl unblocked](https://www.ictnet.es/game/retro-bowl)
 
-[retro bowl](https://www.abn.org.au/game/retro-bowl)
+[retro bowl](https://www.ictnet.es/game/retro-bowl)
 
-[classroom 6x](https://www.abn.org.au/)
+[classroom 6x](https://www.ictnet.es/)
 
-[unblocked games 6x](https://www.abn.org.au/category/classroom-6x-unblocked)
+[unblocked games 6x](https://www.ictnet.es/category/classroom-6x-unblocked)
 
-[classroom 6x unblocked](https://www.abn.org.au/category/classroom-6x-unblocked) 
+[classroom 6x unblocked](https://www.ictnet.es/category/classroom-6x-unblocked) 
 
-[classroom unblocked](https://www.abn.org.au/category/classroom-6x-unblocked) 
+[classroom unblocked](https://www.ictnet.es/category/classroom-6x-unblocked) 
 
-[among us unblocked](https://www.abn.org.au/game/among-us)
+[among us unblocked](https://www.ictnet.es/game/among-us)
 
-[among us](https://www.abn.org.au/game/among-us)
+[among us](https://www.ictnet.es/game/among-us)
 
 [happy wheels unblocked](https://ictnet.es/game/happy-wheels)
 
 [happy wheels](https://ictnet.es/game/happy-wheels)
 
-[granny unblocked](https://www.abn.org.au/game/granny)
+[granny unblocked](https://www.ictnet.es/game/granny)
 
-[survival race unblocked](https://www.abn.org.au/game/survival-race)
+[survival race unblocked](https://www.ictnet.es/game/survival-race)
 
-[survival race](https://www.abn.org.au/game/survival-race)
+[survival race](https://www.ictnet.es/game/survival-race)
 
-[cookie clicker unblocked](https://www.abn.org.au/game/cookie-clicker)
+[cookie clicker unblocked](https://www.ictnet.es/game/cookie-clicker)
 
-[cookie clicker](https://www.abn.org.au/game/cookie-clicker)
+[cookie clicker](https://www.ictnet.es/game/cookie-clicker)
 
-[1v1.lol unblocked](https://www.abn.org.au/game/1v1-lol)
+[1v1.lol unblocked](https://www.ictnet.es/game/1v1-lol)
 
-[1v1.lol](https://www.abn.org.au/game/1v1-lol)
+[1v1.lol](https://www.ictnet.es/game/1v1-lol)
 
-[1v1 lol unblocked](https://www.abn.org.au/game/1v1-lol)
+[1v1 lol unblocked](https://www.ictnet.es/game/1v1-lol)
 
-[1v1 lol](https://www.abn.org.au/game/1v1-lol)
+[1v1 lol](https://www.ictnet.es/game/1v1-lol)
 
-[1v1](https://www.abn.org.au/game/1v1-lol)
+[1v1](https://www.ictnet.es/game/1v1-lol)
 
-[slope 3 unblocked](https://www.abn.org.au/game/slope-3)
+[slope 3 unblocked](https://www.ictnet.es/game/slope-3)
 
-[slope 3](https://www.abn.org.au/game/slope-3)
+[slope 3](https://www.ictnet.es/game/slope-3)
 
-[pixel shooter unblocked](https://www.abn.org.au/game/pixel-shooter)
+[pixel shooter unblocked](https://www.ictnet.es/game/pixel-shooter)
 
-[pixel shooter](https://www.abn.org.au/game/pixel-shooter)  
+[pixel shooter](https://www.ictnet.es/game/pixel-shooter)  
 
-[block blast unblocked](https://www.abn.org.au/game/block-blast)
+[block blast unblocked](https://www.ictnet.es/game/block-blast)
 
-[block blast](https://www.abn.org.au/game/block-blast)
+[block blast](https://www.ictnet.es/game/block-blast)
 
-[slope unblocked](https://www.abn.org.au/game/slope)
+[slope unblocked](https://www.ictnet.es/game/slope)
 
-[slope](https://www.abn.org.au/game/slope)
+[slope](https://www.ictnet.es/game/slope)
 
-[classroom 6x](https://www.abn.org.au/category/classroom-6x)
+[classroom 6x](https://www.ictnet.es/category/classroom-6x)
 
-[classroom 6x unblocked](https://www.abn.org.au/category/classroom-6x)
+[classroom 6x unblocked](https://www.ictnet.es/category/classroom-6x)
 
-[unblocked games 67](https://www.abn.org.au/category/unblocked-games-67)
+[unblocked games 67](https://www.ictnet.es/category/unblocked-games-67)
 
-[sprunki unblocked](https://www.abn.org.au/game/sprunki)
+[sprunki unblocked](https://www.ictnet.es/game/sprunki)
 
-[sprunki](https://www.abn.org.au/game/sprunki)
+[sprunki](https://www.ictnet.es/game/sprunki)
 
-[polytrack unblocked](https://www.abn.org.au/game/polytrack)
+[polytrack unblocked](https://www.ictnet.es/game/polytrack)
 
-[polytrack](https://www.abn.org.au/game/polytrack)
+[polytrack](https://www.ictnet.es/game/polytrack)
 
-[basket random unblocked](https://www.abn.org.au/game/basket-random)
+[basket random unblocked](https://www.ictnet.es/game/basket-random)
 
-[basket random](https://www.abn.org.au/game/basket-random)
+[basket random](https://www.ictnet.es/game/basket-random)
 
-[monkey mart unblocked](https://www.abn.org.au/game/monkey-mart)
+[monkey mart unblocked](https://www.ictnet.es/game/monkey-mart)
 
-[monkey mart](https://www.abn.org.au/game/monkey-mart)
+[monkey mart](https://www.ictnet.es/game/monkey-mart)
 
-[minecraft unblocked](https://www.abn.org.au/category/minecraft)
+[minecraft unblocked](https://www.ictnet.es/category/minecraft)
 
-[super mario unblocked](https://www.abn.org.au/game/super-mario)
+[super mario unblocked](https://www.ictnet.es/game/super-mario)
 
-[mario unblocked](https://www.abn.org.au/game/super-mario)
+[mario unblocked](https://www.ictnet.es/game/super-mario)
 
 
 #Why Choose Classroom 6x?
